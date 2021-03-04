@@ -41,3 +41,9 @@ i dont own the papers. i use google images
 
 # 13
 **![13](https://raw.githubusercontent.com/rethinkingrn/wallpaper/master/13.jpg)**
+
+# 14
+**![14](https://raw.githubusercontent.com/rethinkingrn/wallpaper/master/14.jpg)**
+
+# 15
+**![15](https://raw.githubusercontent.com/rethinkingrn/wallpaper/master/15.jpg)**
