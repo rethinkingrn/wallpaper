@@ -1,6 +1,7 @@
 # wallpaper
 i dont own the papers. i use google images
 
+most should be at least 1080p, some are 4k
 
 # previews
 # 1
