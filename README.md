@@ -1,7 +1,12 @@
 # wallpaper
 i dont own the papers. i use google images
 
-most should be at least 1080p, some are 4k
+most should be at least 1080p, some are 4k 
+
+### update:
+
+i added like a bunch of new wallpapers and i can't be bothered to label them so just go figure lollllll
+> last updated july 13 2021
 
 # previews
 # 1
